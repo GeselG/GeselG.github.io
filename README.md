@@ -3,7 +3,8 @@
 # Education
 - First year at San Diego City College
 
-# Fun Facts 
-- I enjoy painting
-- Going to the beach
-- Cooking
+## Skills
+- Adaptable to any work task
+- Openness to feedback
+- Organization and time managemant
+- Strategizing and Planning
